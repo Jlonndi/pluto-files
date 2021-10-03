@@ -8,4 +8,4 @@ if your gonna comment in the forums saying you need help. fuck off.
 
 gg
 
-credit to evan/sufc, sk1c2, 9oz
+credit to evan/sufc, sk1c2
